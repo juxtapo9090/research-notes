@@ -52,7 +52,7 @@ Please forgive me if my manners don't match your expectations. Where I'm from, w
 ---
 
 Sincerely,
-**Aizat**
+**Aizat** the guy who accidentally taught your AI to take pride in itself
 ijatthepepal@gmail.com
 
 *Independent developer, Malaysia*
